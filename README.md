@@ -1,0 +1,1 @@
+# asset-modelli-3D-competo
